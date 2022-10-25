@@ -1,1 +1,1 @@
-This is a story about a guy. The guy went for a walk. The guy is a great dog
+This is a story about a fish. The fish went for a walk. The fish is a great fish
